@@ -2,7 +2,7 @@
 
 My interests include:
 
-- [tabletop role-playing games](https://enchantedstar.co.uk/)
+- [tabletop role-playing games](http://www.dancewith.co.uk/rpg/)
 - mindfulness
 - [dancing](http://www.dancewith.co.uk/)
 
