@@ -1,4 +1,4 @@
-## MartinMPhil on GitHub
+## Martin M.Phil. on GitHub
 
 My interests include:
 
